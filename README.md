@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @UditaAnand
+- 👀 I’m interested in Reading, badminton and silence
+- 🌱 I’m currently learning Marketing
+- 📫 How to reach me narniaudi@gmail.com 
